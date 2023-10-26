@@ -1,0 +1,2 @@
+# Cloud GG ⛈️
+A Cloud GG  é um projeto de alto nível voltado para a plataforma do FiveM, que apresenta aspectos únicos e que se difere de outros servidores do mesmo segmento. O Projeto surgiu como uma ideia de revolucionar há 3 anos atrás por 2 amigos, Somos todos jogadores, e por isso sabemos as necessidades e como executá-las. São mais de 5 anos como equipe não só no FiveM mas também como player, trazendo assim a experiência, dedicação e carinho para transformar a Cloud GG em uma experiência única.
